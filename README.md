@@ -2,9 +2,11 @@
 
 ⌨️ Programador Iniciante;
 
-⚙️ Cursando Tecnologo em Mecânica/Projetos 👨‍🔧;
+⚙️ Tecnologo em Projetos modadlidade mecânica; 
 
-⚙️ Fatec - SP
+⚙️ Cursando Tecnologia em Projeto de Estruturas Aeronáuticas 👨‍🔧;
+
+⚙️ Fatec - SJC
  
 ⚙️ 👨‍🔧 + 💻 = 👨‍💻.
 
