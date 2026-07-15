@@ -2,7 +2,7 @@
 
 ⌨️ Programador Iniciante;
 
-⚙️ Tecnologo em Projetos modadlidade mecânica; 
+⚙️ Tecnologo em Projetos modalidade mecânica; 
 
 ⚙️ Cursando Tecnologia em Projeto de Estruturas Aeronáuticas 👨‍🔧;
 
